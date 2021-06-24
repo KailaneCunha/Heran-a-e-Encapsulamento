@@ -1,1 +1,0 @@
-# Heran-a-e-Encapsulamento
